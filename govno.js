@@ -1,2 +1,2 @@
 //viktor ivanov 
-// ver 2.
+// KTO PRO4uTAJL TOT CDOXHET
